@@ -3,4 +3,3 @@ taylor swift
 lauv
 exo
 blackpink
-Talia

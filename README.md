@@ -2,3 +2,4 @@
 taylor swift
 lauv
 exo
+blackpink
